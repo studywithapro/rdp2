@@ -1,6 +1,6 @@
-# Windows-RDP-ACTIONS  youtube : EKLESIA TOP
+# subscribe chanel youtube : EKLESIA TOP  (biar berkah )
 
-
+# waiting  SUBSCRIBE  EKLESIA TOP
 
 ### Option 1 (Easiest way 🚑- No sound) 
 
